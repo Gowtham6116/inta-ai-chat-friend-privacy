@@ -1,0 +1,1 @@
+# inta-ai-chat-friend-privacy
